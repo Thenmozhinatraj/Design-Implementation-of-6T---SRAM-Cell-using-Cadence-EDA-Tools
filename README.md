@@ -86,7 +86,8 @@ For Transient Analysis Settings and Output
 ![WhatsApp Image 2024-10-27 at 19 47 16_b961670a](https://github.com/user-attachments/assets/a0468960-74c0-4f67-8d08-ca956d4439df)
 
 
-![WhatsApp Image 2024-10-27 at 19 48 06_ab9a526a](https://github.com/user-attachments/assets/56ba70d9-7c49-4cf1-99e6-c46a03496516)
+![WhatsApp Image 2024-10-27 at 19 54 47_48808cac](https://github.com/user-attachments/assets/a1245c96-aae1-41bc-9886-a7b327162181)
+
 
 
 
